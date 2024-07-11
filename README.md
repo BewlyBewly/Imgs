@@ -1,1 +1,1 @@
-we will place all bewlybewly wallpapers, searchBarCharacters and logos here :3
+we will place all bewlybewly's wallpapers, searchBarCharacters, and logos here :3
